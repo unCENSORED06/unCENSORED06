@@ -5,6 +5,7 @@
 - 📫 How to reach me ... idk
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ... nuthing
+- BTW all those repositiories are shit. all i was tryin to do is make another unblocker soooo useless 
 
 <!---
 unCENSORED06/unCENSORED06 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
